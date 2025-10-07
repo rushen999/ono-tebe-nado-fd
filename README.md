@@ -1,1 +1,0 @@
-https://github.com/rushen999/ono-tebe-nado-fd
